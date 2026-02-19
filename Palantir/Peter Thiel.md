@@ -1,11 +1,15 @@
 Ross Douthat interview
 @38:18 "You would prefer the human race to endure, right?"
 https://www.youtube.com/watch?v=vV7YgnPUxcU
+Short;
+https://www.youtube.com/shorts/LXpc1YiXDoQ
 
 
 Thiel Libertopia
 @4:31 - Technology as an alternative to democracy
 https://www.youtube.com/watch?v=KgH7Lv2gQdk
+Clip;
+https://youtube.com/clip/UgkxerVJQntAzrdZDIW2dCIY0p2miaZOVfCS?si=5Vbxlk694qikXdZF
 
 Fern
 Chapter 1 - Gary Kasparov. Thiel ansetter nesten bare sjakkspillere.
